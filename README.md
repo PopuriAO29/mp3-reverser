@@ -4,7 +4,7 @@
 
 > Why would I want to do that?
  
-Well, maybe you wonder what your favourite song sounds like when played backwards? Or you are looking for hidden messages in old rock music or political speeches? Or perhaps you just like strange noises and weird voices. Do you really need a reason?
+Well, maybe you wonder what your favorite song sounds like when played backwards? Or you are looking for hidden messages in old rock music or political speeches? Or perhaps you just like strange noises and weird voices. Do you really need a reason?
 
 Find it here: [mp3-reverser.com](https://mp3-reverser.com)
 
